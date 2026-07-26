@@ -44,4 +44,4 @@ This Privacy Policy may be updated from time to time.
 
 Developer: Sandeep Rana
 
-Email: your-email@example.com
+Email: sandeepranabhu@gmail.com
